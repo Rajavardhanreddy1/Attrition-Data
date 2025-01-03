@@ -147,5 +147,10 @@ Married employees show a lower attrition rate of  compared to unmarried employee
 ![Screenshot 2025-01-03 192326](https://github.com/user-attachments/assets/10805954-09d9-4ed0-be1a-1bc49926052d)
 
 
+
+**LinkedIn Post**
+https://www.linkedin.com/posts/rajavardhan-reddy-billakurthi-75ab45277_hello-connections-i-am-glad-to-share-my-activity-7120645686701752320-94Ik?utm_source=share&utm_medium=member_desktop
+
+
 ---
 
